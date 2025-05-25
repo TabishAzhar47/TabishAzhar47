@@ -23,6 +23,6 @@ I’m Tabish Azhar, an Embedded Systems Engineer who brings firmware and hardwar
 
 📫 **Get in Touch**  
 - ✉️ [tabishazhar47@gmail.com](mailto:tabishazhar47@gmail.com)  
-- 🔗 [LinkedIn](https://www.linkedin.com/in/TabishAzhar47)  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/tabish-azhar-306988214/)  
 
 “Turning silicon into solutions, one circuit at a time.” 🚀  
